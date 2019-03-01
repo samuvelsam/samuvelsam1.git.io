@@ -1,1 +1,1 @@
-# samuvelsam1.git.io
+# samuvelsam.git.io
